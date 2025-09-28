@@ -1,1 +1,0 @@
-# ArkadiuszSuchecki.github.io
